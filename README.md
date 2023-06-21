@@ -2,4 +2,4 @@
 
 Mi primer repositorio
 
-1 love :music: and :nordicculture:
+1 love 🍕 and 🌕
